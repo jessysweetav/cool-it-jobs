@@ -10,7 +10,7 @@
 Hiii, soy Jessyyyy y tengo oportunidades súper cool en el mundo IT que pueden ser para ti 👩🏻‍💻💜
 
 
-Si te interesa conocer más, te comparto [aquí] todas mis vacantes 🧾 Go, go, go... 🏃🏻‍♀️
+Si te interesa conocer más, te comparto [aquí](https://github.com/jessysweetav/cool-it-jobs/wiki) todas mis vacantes 🧾 Go, go, go... 🏃🏻‍♀️
 
 
                                                         🏃🏻‍♀️ 
