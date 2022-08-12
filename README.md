@@ -5,9 +5,9 @@
 
 👋 Looking cool IT jobs?
     
-                     ✨ You're in the right place! ✨
+                                   ✨ You're in the right place! ✨
 
-Hiii, soy Jessyyyy y tengo oportunidades súper cool en el mundo IT que pueden ser para ti 👩🏻‍💻💜
+Holi, soy Jessy y tengo oportunidades súper cool en el mundo IT que pueden ser para ti 👩🏻‍💻💜
 
 
 Si te interesa conocer más, te comparto [aquí](https://github.com/jessysweetav/cool-it-jobs/wiki) todas mis vacantes 🧾 Go, go, go... 🏃🏻‍♀️
